@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Myra-web
+- 👀 I’m interested in cybersecurity blockchain IA
+- 🌱 I’m currently learning cybersecurity
+- 💞️ I’m looking to collaborate on evereything that can mame me learn more
+- 📫 How to reach me here or on discord
+- 😄 Pronouns: she
+- ⚡ Fun fact: i was in french navy
